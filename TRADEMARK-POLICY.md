@@ -35,4 +35,4 @@ When using the marks in an acceptable context, please include the trademark symb
 ## Contact and Permissions
 If you wish to use the trademarks in a way not explicitly permitted by this policy, you must request and receive written permission before proceeding. 
 
-*(Add your contact email, Mastodon handle, or preferred communication method here)*
+*Email: pipemanmusic@gmail.com Mastodon: @dworth@vccccell1.com*
